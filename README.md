@@ -2,7 +2,7 @@
 
 Esta es una lista de personas a las que quiero
 
-## Comencemos
+## Estas son:
 
 - Mi mamá
 - Messi
